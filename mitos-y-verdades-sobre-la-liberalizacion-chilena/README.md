@@ -1,1 +1,1 @@
-Mitos y verdades sobre l liberalización chilena
+Mitos y verdades sobre la liberalización chilena
